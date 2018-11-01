@@ -11,4 +11,4 @@ Bonus Questions - ?
 November 5th, 2018
 Time limit: One hour, full class is available.
 
-
+questions for short answer 
